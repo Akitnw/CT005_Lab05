@@ -1,1 +1,1 @@
-# CT005_Lab05
+#### CT005_Lab05 - Lê Quốc Huy _ B2605272 - Ngành Truyền thông đa phương tiện
